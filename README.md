@@ -1,1 +1,1 @@
-# javascript-learn-to-code-3
+project .html chosen is computer (ball bat stump) is one option 
